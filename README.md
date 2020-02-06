@@ -1,0 +1,2 @@
+# amuujin
+Im beginner 
